@@ -1,0 +1,1 @@
+# Assalomu aleykum! Wikipedia  botga hush kelibsiz..
